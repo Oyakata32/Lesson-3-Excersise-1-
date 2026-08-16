@@ -1,1 +1,7 @@
 "Projekt dotyczacy modelu scoringu CR" 
+"Kochany pamietniczku" 
+"Dzisiaj sie ucze data learning" 
+"I slucham wspanialej playlisty" 
+"O nazwie" 
+"40 letnia rozwodka zmienia swoje zycie" 
+"main character energy" 
